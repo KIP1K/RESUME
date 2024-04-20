@@ -33,3 +33,10 @@
 - Люблю суккуленты, раньше даже разводил и владел около 1000 едениц, но на данный момент пришлось оставить это хобби.
 
 Курсы и сертификаты:
+
+![13100fbf151a77338c907c8e9552896c](https://github.com/KIP1K/RESUME/assets/141117821/6155d2df-46d9-4a4b-bdeb-8d310f427872)
+![13100fbf151a77338c907c8e9552896c](https://github.com/KIP1K/RESUME/assets/141117821/ec1b6e2f-2c29-48c0-a51c-2f37e46a9cec)
+![146c990ed527c1c2ec9b5645520b58f6](https://github.com/KIP1K/RESUME/assets/141117821/600e1c9e-1670-4546-acac-9ae8a14d0391)
+
+
+
