@@ -1,9 +1,7 @@
 
 
-
-
 ### Контактная информация: 
-<img align="right" width="100" height="150" src="https://github.com/KIP1K/RESUME/assets/141117821/b46c780b-18a3-4b8e-8732-abe1b12d477c">
+<img align="right" width="200" height="300" src="https://github.com/KIP1K/RESUME/assets/141117821/d8dd4e08-6459-41ef-80f2-efa31b2f803f">
 - Email: [motafaka@yandex.ru]
 - Телефон: [89662915591]
 
